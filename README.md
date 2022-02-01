@@ -9,7 +9,7 @@
 - ⚡ Fun fact: Some animals have been known to eat their poop. But people, too, can afford such antics.
 
 ### ME
-[![Telegramm](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Telegram_2019_Logo.svg/800px-Telegram_2019_Logo.svg.png)](https://t.me/ninjin_m)
+[![Telegramm](https://w7.pngwing.com/pngs/527/758/png-transparent-social-media-telegram-logo-computer-icons-telegram-angle-triangle-monochrome-thumbnail.png)](https://t.me/ninjin_m)
 
 <!--
 **D-Ninjin/D-Ninjin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -8,6 +8,9 @@
 - 💬 Ask me about poop
 - ⚡ Fun fact: Some animals have been known to eat their poop. But people, too, can afford such antics.
 
+### ME
+[![Telegramm](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Telegram_2019_Logo.svg/800px-Telegram_2019_Logo.svg.png)](https://t.me/ninjin_m)
+
 <!--
 **D-Ninjin/D-Ninjin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

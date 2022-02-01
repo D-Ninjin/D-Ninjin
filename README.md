@@ -10,6 +10,7 @@
 
 ### ME
 [![Telegramm](https://www.pngkit.com/png/full/207-2077391_telegram-logo-png.png)](https://t.me/ninjin_m)
+[![VK](https://avatanplus.com/files/resources/mid/5a15aaad4030b15fe4a2b4cf.png)](https://vk.com/daniilgaraguliya)
 
 <!--
 **D-Ninjin/D-Ninjin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

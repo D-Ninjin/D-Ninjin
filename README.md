@@ -3,7 +3,6 @@
 - 👋 Hi , I’m @ninjin_m 👋
 - 👀 I’m interested in pooping
 - 🌱 I’m currently learning how to poop
-- 💞️ I’m looking to collaborate 
 - 📫 How to reach me ... just send a photo of your poop to me in PM
 - 💬 Ask me about poop
 - ⚡ Fun fact: Some animals have been known to eat their poop. But people, too, can afford such antics.

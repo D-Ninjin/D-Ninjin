@@ -2,10 +2,10 @@
 ![Header](https://i.pinimg.com/originals/b5/04/dc/b504dc67d762fc77e5be7bf8a30dce2c.jpg)
 - 👋 Hi , I’m @ninjin_m 👋
 - 👀 I’m interested in ... 
-- 🌱 I’m currently learning...
-- 📫 How to reach me ...
-- 💬 Ask me about ...
-
+- 🌱 I’m currently studying at KubSAU [![KubSau](https://globalkras.ru/usr/catalog/big-catalog-16250411081.png?style=for-the-badge&logo=appveyor)](https://kubsau.ru/)
+- 💬 Ask me about 1000-7
+- ⚡ Fun Joke: What is the difference between a coffin truck driver and a brawl stars player?
+-  The driver of the coffin truck is not happy when the box fell out.
 
 ### ME:
 [![Telegramm](https://www.pngkit.com/png/full/207-2077391_telegram-logo-png.png)](https://t.me/ninjin_m)

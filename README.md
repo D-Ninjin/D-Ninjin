@@ -2,7 +2,7 @@
 ![Header](https://i.pinimg.com/originals/b5/04/dc/b504dc67d762fc77e5be7bf8a30dce2c.jpg)
 - 👋 Hi , I’m @ninjin_m 👋
 - 👀 I’m interested in ... 
-- 🌱 I’m currently studying at ![KubSAU]](https://kubsau.ru/)
+- 🌱 I’m currently studying at ![KubSAU](https://kubsau.ru/)
 - 💬 Ask me about 1000-7
 - ⚡ Fun Joke: What is the difference between a coffin truck driver and a brawl stars player?
 -  The driver of the coffin truck is not happy when the box fell out.

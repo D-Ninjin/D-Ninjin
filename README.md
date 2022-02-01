@@ -4,8 +4,7 @@
 - 👀 Nothing interests me ...😔 
 - 🌱 I’m currently studying at [KubSAU](https://kubsau.ru/)
 - 💬 Ask me about 1000-7
-- ⚡ Fun Joke: What is the difference between a coffin truck driver and a brawl stars player?
--  The driver of the coffin truck is not happy when the box fell out.
+- ⚡ Fun Joke: What is the difference between a coffin truck driver and a brawl stars player? The driver of the coffin truck is not happy when the box fell out.
 
 ### ME:
 [![Telegramm](https://www.pngkit.com/png/full/207-2077391_telegram-logo-png.png)](https://t.me/ninjin_m)

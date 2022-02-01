@@ -1,4 +1,4 @@
-###Hi , I’m @ninjin_m 👋
+- 👋 Hi , I’m @ninjin_m 👋
 - 👀 I’m interested in pooping
 - 🌱 I’m currently learning how to poop
 - 💞️ I’m looking to collaborate 

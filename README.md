@@ -1,5 +1,5 @@
 
-![Header](https://i.pinimg.com/736x/29/3d/6c/293d6cdfef88ca53d308efe2663c6a47.jpg)
+![Header](https://i.pinimg.com/originals/b5/04/dc/b504dc67d762fc77e5be7bf8a30dce2c.jpg)
 - 👋 Hi , I’m @ninjin_m 👋
 - 👀 I’m interested in pooping
 - 🌱 I’m currently learning how to poop

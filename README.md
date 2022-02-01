@@ -1,13 +1,13 @@
 
 ![Header](https://i.pinimg.com/originals/b5/04/dc/b504dc67d762fc77e5be7bf8a30dce2c.jpg)
 - 👋 Hi , I’m @ninjin_m 👋
-- 👀 I’m interested in pooping
-- 🌱 I’m currently learning how to poop
-- 📫 How to reach me ... just send a photo of your poop to me in PM
-- 💬 Ask me about poop
-- ⚡ Fun fact: Some animals have been known to eat their poop. But people, too, can afford such antics.
+- 👀 I’m interested in ... 
+- 🌱 I’m currently learning...
+- 📫 How to reach me ...
+- 💬 Ask me about ...
 
-### ME
+
+### ME:
 [![Telegramm](https://www.pngkit.com/png/full/207-2077391_telegram-logo-png.png)](https://t.me/ninjin_m)
 [![VK](https://uxwing.com/wp-content/themes/uxwing/download/10-brands-and-social-media/vk-round-color.png)](https://vk.com/daniilgaraguliya)
 

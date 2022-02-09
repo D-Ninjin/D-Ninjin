@@ -1,5 +1,5 @@
 
-![Header](https://i.pinimg.com/originals/b5/04/dc/b504dc67d762fc77e5be7bf8a30dce2c.jpg)
+![Header](https://i.gifer.com/1sLB.gif)
 - 👋 Hi , I’m Ninjin 👋
 - 👀 Nothing interests me ...😔 
 - 💬 Ask me about 1000-7
@@ -24,4 +24,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+https://i.pinimg.com/originals/b5/04/dc/b504dc67d762fc77e5be7bf8a30dce2c.jpg
+
+https://i.gifer.com/1sLB.gif
 -->

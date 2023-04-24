@@ -8,7 +8,7 @@
 - The driver of the coffin truck is not happy when the box fell out.
 
 ### ME:
-[![Telegramm](https://www.pngkit.com/png/full/207-2077391_telegram-logo-png.png)](https://t.me/ninjin_m)
+[![Telegramm](https://img.icons8.com/ios/250/null/telegram.png)](https://t.me/ninjin_m)
 [![VK](https://img.icons8.com/material-outlined/384/null/vk-com.png)](https://www.youtube.com/watch?v=xb0ctrqXg0g)
 
 <!--

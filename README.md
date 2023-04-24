@@ -9,7 +9,7 @@
 
 ### ME:
 [![Telegramm](https://www.pngkit.com/png/full/207-2077391_telegram-logo-png.png)](https://t.me/ninjin_m)
-[![VK]([https://uxwing.com/wp-content/themes/uxwing/download/10-brands-and-social-media/vk-round-color.png](https://e7.pngegg.com/pngimages/948/829/png-clipart-computer-icons-web-browser-vk-vk-logo-logo-monochrome.png))](https://www.youtube.com/watch?v=xb0ctrqXg0g)
+[![VK](https://upload.wikimedia.org/wikipedia/commons/9/9a/VK_Logo.png)](https://www.youtube.com/watch?v=xb0ctrqXg0g)
 
 <!--
 **D-Ninjin/D-Ninjin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

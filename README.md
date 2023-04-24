@@ -9,7 +9,7 @@
 
 ### ME:
 [![Telegramm](https://img.icons8.com/ios/500/null/telegram.png)](https://t.me/ninjin_m)
-[![VK]([https://img.icons8.com/material-outlined/384/null/vk-com.png](https://img.icons8.com/material-outlined/500/null/vk-com.png))](https://www.youtube.com/watch?v=xb0ctrqXg0g)
+[![VK](https://img.icons8.com/material-outlined/500/null/vk-com.png)](https://www.youtube.com/watch?v=xb0ctrqXg0g)
 
 <!--
 **D-Ninjin/D-Ninjin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

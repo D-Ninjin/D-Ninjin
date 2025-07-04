@@ -8,8 +8,8 @@
 - The driver of the coffin truck is not happy when the box fell out.
 
 ### ME:
-[![Telegramm](https://img.icons8.com/?size=100&id=A4uyUh8LBg90&format=png&color=000000)](https://t.me/ninjin_m)
-[![VK](https://img.icons8.com/?size=100&id=44414&format=png&color=000000)](https://www.youtube.com/watch?v=xb0ctrqXg0g)
+[![Telegramm](https://img.icons8.com/?size=100&id=jZ1z64hEYYLW&format=png&color=000000)](https://t.me/ninjin_m)
+[![VK](https://img.icons8.com/?size=100&id=11qHAjmgkZc8&format=png&color=000000)](https://www.youtube.com/watch?v=xb0ctrqXg0g)
 
 <!--
 **D-Ninjin/D-Ninjin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
